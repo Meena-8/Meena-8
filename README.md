@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Meena-8
+- 👋 Hi, I’m Meenakshi
 - 👀 I’m interested in Dats
 - 🌱 I’m currently learning Analysis
 - 📫
