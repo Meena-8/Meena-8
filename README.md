@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Meenakshi
-- 👀 I’m interested in Dats
+- 👀 I’m interested in Data
 - 🌱 I’m currently learning Analysis
 - 📫
 
